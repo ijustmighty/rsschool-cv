@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ijustmighty.github.io/rsschool-cv/cv
