@@ -1,1 +1,1 @@
-https://ijustmighty.github.io/rsschool-cv/cv
+https://ijustmighty.github.io/rsschool-cv/
